@@ -1,1 +1,1 @@
-# -Turik
+# Turik
